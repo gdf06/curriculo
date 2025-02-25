@@ -4,7 +4,7 @@
 ### (Nome)
 Guilherme Duarte Figueira
 ### (Telefone)
-(43) 9 9999-9999
+(43) 9 99071408
 ### (e-mail)
 ______@outlook.com
 ### (Formacao Academica)
